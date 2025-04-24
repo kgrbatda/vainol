@@ -1,0 +1,4 @@
+﻿#  Corrupted World APK v2.2.5 New 2025 Free For Android
+
+##  Download Now: [Corrupted World APK](https://tinyurl.com/3894xbha)
+**Corrupted World APK** is an immersive mobile visual novel for Android that blends fantasy, drama, and choice-driven storytelling. In this game, players assume the role of a young man whose ordinary life is upended when three mysterious girls appear, granting him the power to influence others. Developed using the Ren'Py engine, the app offers a rich narrative with over 5,700 high-resolution images and more than 560 dynamic animations. The latest version, 0.2.1, introduces new school events, expanded club content, and enhanced character development systems. Free to download and compatible with Android 6.0+, Corrupted World provides a captivating experience for mature audiences.
